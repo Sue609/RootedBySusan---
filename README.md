@@ -152,16 +152,16 @@ Learning to build things that not only *work* — but *make sense*.
 
 ## 🌍 Connect With Me
 
-💼 [LinkedIn](www.linkedin.com/in/susan-w-kamau-a13903189)  
+💼 [LinkedIn](https://www.linkedin.com/in/susan-w-kamau-a13903189)  
 💻 [GitHub](#)  
-📧 [Email](susankamau609@gmail.com)
+📧 [Email](mailto:susankamau609@gmail.com)
 
 ---
 
 ## 🌻 Final Words
 
 This isn’t just a portfolio. 
- 
+
 It’s a living record of **discipline, curiosity, and self-trust**.  
 
 If you ever feel like giving up — just remember:  
